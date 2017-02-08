@@ -4,12 +4,9 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Currently I'm a scholar majoring in math. Sometimes reading about world affairs and so on. Born in living in Germany since my birth in 1993. Start your calculators if you want to know my age.
 
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[email@domain.com](mailto:seb.koehnken@gmail.com)
