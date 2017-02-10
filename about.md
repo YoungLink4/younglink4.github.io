@@ -19,4 +19,4 @@ And yeah, this blog's really gonna be naive, so take it with a big grain of doub
 
 ### Contact me
 
-[email@domain.com](mailto:seb.koehnken@gmail.com)
+[Write a mail](mailto:seb.koehnken@gmail.com)
