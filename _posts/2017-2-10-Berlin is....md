@@ -1,0 +1,14 @@
+---
+layout: post
+title: Thoughts about anonymity etc.
+---
+
+[Fucking hilarious](http://www.spiegel.de/lebenundlernen/schule/berlin-kreuzberg-toiletten-kaputt-unterricht-faellt-aus-a-1134006.html) (German)
+
+I want to make this blog globally available, so I will try to keep my citations and sources in English, but I just had to post a small article about this.
+
+The article basically says, that Berlins biggest school with 4700 students and another 220 teachers will close for two days, because only one in five toilets is functional. Most Germans will probably agree if I say the German education system is terrifically bad. It's often on the news how certain schools desperately need money for some restoration but won't get any. This however is even worse than imagined. No wonder many people don't want to go to public toilets. This sort of thing is traumatic.
+
+I'm honestly glad that the toilets in our facility in university are cleaned multiple times per day. We never run out of toilet paper and there are no clear stains whatsoever. Some doors won't fit properly, but almost expected at this point. 
+
+Oh and my old school was lucky enough to have asbestos somewhere, so our federal state was forced to restorate it. That's probably the only reliable method to get them to give you the needed money.
