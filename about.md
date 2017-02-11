@@ -17,6 +17,6 @@ Similarily, I or we as Germans have no political power over the US, a huge activ
 
 And yeah, this blog's really gonna be naive, so take it with a big grain of doubt. Take a handful. Always take a handful when reading something on the internet, that's the most vital skill of our time.
 
-### Contact me
+### Contact me 
 
 [Write a mail](mailto:seb.koehnken@gmail.com)
