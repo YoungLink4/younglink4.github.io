@@ -1,4 +1,9 @@
-﻿We did it guys! We've finally arrived in the era after Trump! Not only that, but we already survived four weeks! We finally left the era "after 9/11" and entered the next one. Now no one knows what's gonna happen next. Similar to the time after 9/11 with one difference. most politicians spoke up for more security immediately after. But with the wild card Trump, that's different. Even the [intelligence agencies](http://observer.com/2017/02/donald-trump-administration-mike-flynn-russian-embassy/) are unsure. 
+﻿---
+layout: post
+title: About this blog
+---
+
+We did it guys! We've finally arrived in the era after Trump! Not only that, but we already survived four weeks! We finally left the era "after 9/11" and entered the next one. Now no one knows what's gonna happen next. Similar to the time after 9/11 with one difference. most politicians spoke up for more security immediately after. But with the wild card Trump, that's different. Even the [intelligence agencies](http://observer.com/2017/02/donald-trump-administration-mike-flynn-russian-embassy/) are unsure. 
 
 But really, what's all the commotion about? It's like suddenly it's the end of the world. Every minority thinks they're done for. "Oh no, Trump got elected, we're all gonna die! World War 3 soon!!!" Eh no, rather the other way around. Clinton is the one who, as minister of foreign affairs, didn't talk with Russia at all. Nothing to improve the relationship towards Russia. The warmongerer Clinton was in full action, meanwhile the fearmongering press rejoiced as they had more material for clicks. I've read a good tweet of an European, who had a very good reason why he hopes Trump gets elected. As both are the worst outcome for any election, Trump at least shows a positive postion towards Russia. I mean, we'd be the first ones to notice another world war. 
 
