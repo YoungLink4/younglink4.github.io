@@ -4,7 +4,7 @@ But really, what's all the commotion about? It's like suddenly it's the end of t
 
 To anyone screaming "oh no, he's the second coming of Hitler! Someone stop him!". No, Duterte already got that spot. If anything, he's the 3rd, I'm sorry.
 
-Regardless, if you are one of these hysteric types. I, as a German --- no I don't mean how Hitler also got elected democratically --- welcome you to democracy! Isn't it fun? Almost 12 years of Merkel, packed with horrible politics left and right and yet she's still the most likely candidate. Isn't it fun!? 
+Regardless, if you are one of these hysteric types. I, as a German ---no I don't mean how Hitler also got elected democratically--- welcome you to democracy! Isn't it fun? Almost 12 years of Merkel, packed with horrible politics left and right and yet she's still the most likely candidate. Isn't it fun!? 
 
 Anyway, let's calm down again, you and me, and think about it for a second. What were the pros and cons of both candidates. And what happened since the election? Because oh boy, it's been only four weeks since he went into office and there are new stories almost daily.
 
