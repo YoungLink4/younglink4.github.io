@@ -36,9 +36,9 @@ Nonetheless I never get the feeling that media is much different on the other si
 Luckily enough for me, it's easy to google a few [examples](http://www.telegraph.co.uk/women/politics/donald-trump-sexism-tracker-every-offensive-comment-in-one-place/) of the overly bad image the media gives Trump.
 
 >Huffington Post editor and co-founder Arianna Huffington is a regular target of Trump’s. But instead of attacking her liberal views, he tends to criticise her looks and make jokes about her divorce.
-{% twitter https://twitter.com/realDonaldTrump/status/240462265680289792 %}
+See this [Tweet](https://twitter.com/realDonaldTrump/status/240462265680289792)
 
-Yes he, does attack her looks, but he also attacks her personality itself. He basically calls her a disgusting woman, not only disgusting in appearance, but also in character. If this statement is also about her policies is a different story.
+Yes he does attack her looks, but he also attacks her personality itself. He basically calls her a disgusting woman, not only disgusting in appearance, but also in character. If this statement is also about her policies is a different story.
 
 [Huffington Post](http://www.huffingtonpost.com/entry/donald-trump-racist-examples_us_56d47177e4b03260bf777e83) also has its own list of his misdeeds. Let's see what they have to offer. 
 >He claimed a judge was biased because “he’s a Mexican”
@@ -75,8 +75,7 @@ Next up we have the ignorant Trump answering the [call](http://time.com/4589641/
 
 He's also heavily against TTIP giving the treaty an anticlimatic end. (Yay for us Europeans)
 
-End of January he moves into office and immediately after signs the executive order to ban the entry of muslims from certain countries. If that weren't enough, a judge comes along and temporary [negates](http://www.independent.co.uk/news/world/americas/donald-trump-muslim-ban-judge-suspended-reacts-big-trouble-tweet-immigration-bob-ferguson-a7562671.html) that ban. This could be the end of the story, but Trump weren't Trump if he didn't hastily respond in his own fasion, displaying his ignorance once more.
-{% twitter twitter https://twitter.com/realDonaldTrump/status/827867311054974976 %}
+End of January he moves into office and immediately after signs the executive order to ban the entry of muslims from certain countries. If that weren't enough, a judge comes along and temporary [negates](http://www.independent.co.uk/news/world/americas/donald-trump-muslim-ban-judge-suspended-reacts-big-trouble-tweet-immigration-bob-ferguson-a7562671.html) that ban. This could be the end of the story, but Trump weren't Trump if he didn't hastily respond in his own fasion, displaying his ignorance once more in this [tweet](https://twitter.com/realDonaldTrump/status/827867311054974976).
 Yes, the three pillars of democracy, legaslative, executive and jugislative is a very difficult concept. It's a check and balance concept after all.
 
 And because that first order went so well and found so much echo among the population, he delivered another one. This time deregulating the financial market. Reverting the regulations after the Lehman crisis, he yet again causes an uproar amongst many. Suddenly it's more like flood the swamp I guess.
