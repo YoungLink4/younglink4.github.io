@@ -1,6 +1,6 @@
 ---
 layout: post
-title: About this blog
+title: American Election
 ---
 
 We did it guys! We've finally arrived in the era after Trump!
