@@ -49,12 +49,15 @@ Yes he does attack her looks, but he also attacks her personality itself. He bas
 
 [Huffington Post](http://www.huffingtonpost.com/entry/donald-trump-racist-examples_us_56d47177e4b03260bf777e83) also has its own list of his misdeeds. Let's see what they have to offer. 
 >He claimed a judge was biased because “he’s a Mexican”
+
 He may not be wrong with that. That judge might be biased against Trump because of his policies. The idea of a wall to Mexico might be a bad idea, so bad that it could've costed him valueable voters. But the claim itself is not without reason.
 
 Another point they have is the following
 >He refused to condemn the white supremacists who are campaigning for him
+
 What the interviewer asked was
 >[...] will you unequivocally condemn David Duke and say that you don't want his vote or that of other whites supremacists in this election?
+
 That, by the CNN, was a really leading move. Trump can't say that he doesn't want these or those votes. No politician anywhere will ever publicly tell a big supportive group, that he or she doesn't want their votes. So the second part of this question already is set up against Trump. Trump only addresses the first part and says that he doesn't know David Duke or what exactly white supremacists are. He basically plays the fool who doesn't know any better to avoid the question. Even after the interviewer tells him they are the KKK, he stays firm. 
 Now the problem here is, that he has two choices. He either condemns them as told. This would hurt his image among his best supporters while portraying himself as a better person towards none-supportive groups. Or he doesn't condemn them and avoid the question. With the way how he dodged the question, he also portrayed himself pretty well by himself, saying he won't judge a group he doesn't know anything about.
 The article of Huffington Post goes on how these right wing groups are very supportive towards Trump. However, that doesn't change anything about Trumps view. It doesn't make him any more racist.
