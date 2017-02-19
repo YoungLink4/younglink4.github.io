@@ -7,12 +7,12 @@ title: SPD back on the rise
 
 Ok, it looks like this years election might become more interesting than expected. What are the numbers exactly accoring to that article?
 
-  *SPD 33
-  *CDU/CSU 32
-  *The Linke 8
-  *The Greens 7
-  *FDP 6
-  *AfD 9
+* SPD 33
+* CDU/CSU 32
+* The Linke 8
+* The Greens 7
+* FDP 6
+* AfD 9
 
 With that the SPD could make a coalation with the Greens and the Linke, as the article said. But that's only so barely. A one percent change can shift it towards something else. It also means FDP would go back into the parliament. CDU/CSU could almost make a coalation with FDP and AfD, but that seems unlikely. For me it sounds more reasonable that they're gonna do one with the SPD again. (Heh, while Democrats and Republicans fight over governance, our big two don't even pretend to oppose each other all that much)
 
