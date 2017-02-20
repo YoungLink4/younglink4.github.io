@@ -9,7 +9,8 @@ Recently more and more persons have been deemed racist, sexist, rapist or fascis
 
 But what do these accusations mean? What conclusions can we draw from them or how do they affect the overall climate of discurs? That's mainly what I'm interested in. But first off, let's look at them independently.
 
-### Racist accusations
+# Racist accusations
+
 ## Jontron
 
 Let's start with a quick example, as the video this is about is 5 hours long and I don't really want to watch it. At one point in a [podcast](https://www.youtube.com/watch?v=kyFXpXVZ8ho&feature=youtu.be&t=4122) Jontron voiced his positive attitude towards Le Pen's right-wing party in Europe. Soon after, many on Twitter called him out on being a racist for his opinion in the podcast as well as prior interviews he's given to the far-right news site Breitbart. 
@@ -31,7 +32,7 @@ Any more of these articles just damaged yourself. It makes you look like a child
 
 So PewDiePie released a video where he apparently displayed his opinion with a "Death to all just" banner. The Wall Street Journal quickly took up on that and attacked him with an article. But before we go through from different perspectives, let's recap the exact content of both sides.
 
-# The story
+### The story
 
 On January 12th PewDiePiew uploaded a [video](https://youtu.be/5vivYTuATHA?t=657) about a website we you can request all kinds of stuff. Among other requests he also paid two Indians to dance in the jungle with "Death to all jews" written on a banner. The end of this video shows these Indians fulfill this request while PewDiePie is in shock of what happened. Accoring to himself, he didn't expect them to actually do that kind of thing. Yet they did and he uploaded the video with his reaction.
 
@@ -45,7 +46,7 @@ Now, just three days ago on February 16th, Felix posted his own [reply](https://
 
 Ethan Klein, one of Felix's jewish close friends, made a [video](https://www.youtube.com/watch?v=lwk1DogcPmU) himself about this situation. It also includes the video version of WSJ's article with a small analysis of it. Ironically enough, they again use video material of Felix out of context to show is supposedly anti-semitic views.
 
-# Discussion
+### Discussion
 
 First things first, why does Felix get so much backslash for his video? It basically boils down to [bad humour](http://www.polygon.com/2017/2/17/14637642/pewdiepie-south-park-anti-semitic-jokes). In other words, he's a bad comedian. The Polygon makes a good point in saying he isn't a good writer. Then again, some of it might just be improvised, him acting rather naturally, just a bit exaggerated. His primary audience is rather young after all. Not young adults, more like curious underage teenagers. So that might work well there. 
 
@@ -68,7 +69,7 @@ But also dictionary.com defines it similarily
 
 So PewDiePie's video can't have anything to do with fascism. Yes, Nazi-Germany was a fascist country, but that's a correlation. There's no reason to assume anti-semitism needs fascism. You can say however, that a anti-semitic society whose goal is to cleanse themselves from jews needs an authorian structure, so it naturally evolves into a fascist society in the process, but that does't not applicable here. PewDiePie alone can't be fascist with just a single video clip.
 
-### Rapist accusations
+# Rapist accusations
 
 Before I go on and draw some more conclusions, I want to bring up rape accusations, as they are very similar. So far we had JonTron, who was accused by social media, Trump who was accused from all directions and PewDiePie who experienced a personal attack by the established media. Although these cases all have different actors, they share one thing. All of them inflate the word racist in some way. In case of PewDiePew, it denounces the worth our media as we know it. That is why I use this topic about supposed rapists here as well, as it comes down to the same thing.
 
@@ -98,7 +99,7 @@ Another German example would be the [case](http://www.bbc.com/news/world-europe-
 
 Nevertheless, the story went through multiple media outlets in Germany. Not only that, some German politicians such as Manuela Schwesig uttered their sympathy for Lohfink long before the case even ended. It just shows how much this issue is skewed in one direction. 
 
-### Conclusion
+# Conclusion
 
 It's a shame that I couldn't come up with more examples, but I think I'm not the only one who has the impression, that rape cases are immensely emotionally charged. It wouldn't even be that bad, if the supposed culprit wouldn't receive such misbehaviour. Sure you can speak your condolecence for the women, but before the man isn't convicted, he should be free from such attacks, even if it's about rape.
 
