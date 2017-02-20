@@ -3,11 +3,13 @@ layout: post
 title: Inflation of Words
 ---
 
+Newspapers really aren't good anymore...
+
 Recently more and more persons have been deemed racist, sexist, rapist or fascist. Sometimes a combination of them, some times it was grounded on good reason, other times it was a baseless accusation. Examples that come to mind are obviously Trump and PewDiePie. But a bit less recently Jontron, a not that famous youtube figure to most, has been accused as well, similar to PewDiePie. If we go back even further, Jacob Appelbaum and Julian Asagne faced similar situations.
 
 But what do these accusations mean? What conclusions can we draw from them or how do they affect the overall climate of discurs? That's mainly what I'm interested in. But first off, let's look at them independently.
 
-###Racist accusations
+### Racist accusations
 ## Jontron
 
 Let's start with a quick example, as the video this is about is 5 hours long and I don't really want to watch it. At one point in a [podcast](https://www.youtube.com/watch?v=kyFXpXVZ8ho&feature=youtu.be&t=4122) Jontron voiced his positive attitude towards Le Pen's right-wing party in Europe. Soon after, many on Twitter called him out on being a racist for his opinion in the podcast as well as prior interviews he's given to the far-right news site Breitbart. 
