@@ -19,3 +19,5 @@ Source: [Aftonbladet](http://www.aftonbladet.se/nyheter/a/Lz524/polis-avlossade-
 Source: [Twitter](https://twitter.com/V_of_Europe/status/833820672988176384) following this [article](http://www.nettavisen.no/nyheter/utenriks/opptyer-i-rinkeby-i-stockholm---politiet-avfyrte-varselskudd/3423315037.html)
 
 It really is all jumbled up. Or maybe it's just that we live in a post facto time. First the facts, then the evidence. Told you these 4 years are gonna be a blast.
+
+The pictures make it look worse than it actually is. Articles talk about 40 rioters.

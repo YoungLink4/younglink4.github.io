@@ -3,7 +3,7 @@ layout: post
 title: Inflation of Words
 ---
 
-Newspapers really aren't good anymore...
+Newspapers have declined
 
 Recently more and more persons have been deemed racist, sexist, rapist or fascist. Sometimes a combination of them, some times it was grounded on good reason, other times it was a baseless accusation. Examples that come to mind are obviously Trump and PewDiePie. But a bit less recently Jontron, a not that famous youtube figure to most, has been accused as well, similar to PewDiePie. If we go back even further, Jacob Appelbaum and Julian Asagne faced similar situations.
 
