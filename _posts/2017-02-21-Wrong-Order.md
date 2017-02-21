@@ -1,4 +1,4 @@
----
+ï»¿---
 layout: post
 title: Order mixed up
 ---
@@ -6,7 +6,7 @@ title: Order mixed up
 Somehow whenever it comes to Trump, things start to get weird.
 
   1. Trump [talks](https://www.nytimes.com/2017/02/19/world/europe/last-night-in-sweden-trumps-remark-baffles-a-nation.html) about the migration in Sweden. Even though nothing happened the night before there.
-  >You look at what’s happening in Germany, you look at what’s happening last night in Sweden. Sweden, who would believe this?
+  >You look at what's happening in Germany, you look at what's happening last night in Sweden. Sweden, who would believe this?
   
   2. Then he [explains](http://www.nbcnews.com/news/us-news/donald-trump-explains-sweden-terror-comment-baffled-nation-n723006) his comment, saying it didn't point to a specific event, but rather something Fox News broadcasted earlier. (Which kinda doesn't make it any better at all)
   
