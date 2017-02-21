@@ -18,5 +18,4 @@ Source: [Aftonbladet](http://www.aftonbladet.se/nyheter/a/Lz524/polis-avlossade-
 ![SwedenCar2](https://github.com/YoungLink4/younglink4.github.io/blob/master/images/BurningSweden2.jpg?raw=true)
 Source: [Twitter](https://twitter.com/V_of_Europe/status/833820672988176384) following this [article](http://www.nettavisen.no/nyheter/utenriks/opptyer-i-rinkeby-i-stockholm---politiet-avfyrte-varselskudd/3423315037.html)
 
-It really is all jumbled up. Or maybe it's just that we live in a post facto time. First the facts, then the evidence. 
-
+It really is all jumbled up. Or maybe it's just that we live in a post facto time. First the facts, then the evidence. Told you these 4 years are gonna be a blast.
