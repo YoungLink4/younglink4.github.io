@@ -1,6 +1,6 @@
-﻿---
+---
 layout: post
-title: Serious Politics.
+title: Serious Politics
 ---
 
 And a completely misleading title.
