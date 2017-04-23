@@ -1,6 +1,6 @@
----
+﻿---
 layout: post
-title: Serious Politics
+title: Serious Politics.
 ---
 
 And a completely misleading title.
@@ -27,7 +27,7 @@ So when I talk with others about politics or politicians, there's a general cens
  
  Our military department is a disaster. Most of our stuff is barely working as it is ancient. 
  
- I can also hear a lot joke about rich people evade taxes, which are a huge mess to begin with. Surely Uli Hoene� an isolated case. 
+ I can also hear a lot joke about rich people evade taxes, which are a huge mess to begin with. Surely Uli Hoeneß an isolated case. 
  
  These examples just don't end. Whereever you look, there's some amazing stuff going on that doesn't aid 90% of the population. You could also look outside of your country to see your own bombs flying around in many many regions. Libya, Syria, Iraq, Yugoslavia, Iran, Isreal, Afgahnistan, Yemen, Turkey. The list of warzones just doesn't end. Most of these were created by the US, yes. But the EU with Germany on the top provided the whole region with lots of weapons, which doesn't help stabilize the region at all.
  
