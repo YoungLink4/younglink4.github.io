@@ -37,34 +37,17 @@ All that said, the list to work on is quite big. Nevertheless, I think the solut
 To start with, let's go to kindergarten. Kindergarten or preschool is the first step into social life. For some, it's one of the ![first interactions](http://www.parents.com/toddlers-preschoolers/starting-preschool/curriculum/why-preschool-matters/?page=1) they have with strangers. It can be important for kids to be slowly adapt to new place and a new daily routine. So preschool can relieve the kids from some of the initial nervousness or overwhelming feeling they can get from school. It's also a good place for them to learn the country's language in case they have foreign parents. Kids who can't speak the language of the country they live in have a harder time keeping up with school after all. That's especially crucial in the early years where they learn vital skills like reading and writing.
 To give everyone equal oppurtunities a common ground to start with is absolutely neccessary. So preschool should be required for everyone to start with. It's also hard to say it's up to the parents to decide what's best for their children, since they might not know after all. They might act against their kids will or interest without without knowing.
 
-Afterwards begins the real deal, school starts and it needs a plan. Here is where it's getting difficult. No one can say what's best, but everyone wants the best and has their own opinion. 
+Afterwards begins the real deal, school starts and it needs a plan. Here is where it's getting difficult. No one can say what's best, but everyone wants the best and has their own opinion. The problem is, that they differ a lot, even among teachers who have lots of experience. The best way to improve the environment should be empirical studies Luckily we have that. John Hattie ![published](http://www.economist.com/news/briefing/21700385-great-teaching-has-long-been-seen-innate-skill-reformers-are-showing-best) a huge study that revealed some huge findings. He found out that the main factor are teachers. Additional assets such as tvs, computers etc. are only secondary to their role in teaching. Even the size of classes don't factor in that much contrary to popular believe. (Although I would argue that big classes can negatively affect the teachings of a teacher as it is more stressful for them. So I wonder how this changes if you look at the total number of students a teacher teaches or some other factor regarding that.) Taking Hattie's meta-study into account, the highest priority should be a huge staff of teachers, who're additionally supported by other groups. Different countries try different concepts like observing other teachers in their styles or teaching classes in coop. All these are mainly experiments though and need empirical grounds.
 
+Especially Germany needs empirical studies on this subject. Unfortunately there are no studies on the techniques of teaching. Our education system is state organized, the federal government just gives the overall guidelines. As such they can avoid any criticism and push it to the federal states. Those just try new things over and over again without any empirical basis or money to support it. On top of that, qualitative studies on the different school systems among federal states are illegal. This creates a huge mess where some of our states try to keep up with others, experimenting a lot in the process.
+To nongermans a clue what I mean. When I went to high school and did my abitur, no teacher knew the general guidelines, because they're changed every two years. So the only ones who actually try to keep up are those who oversee a class. My federal state, Bremen, which is actually just a city, also tried "inclusion". Mentally disabled kids should learn with others in the same classroom to benefit from normal students. These classes should be supported by additional, specialized personal to aid the teachers with these kids. But since money ends fast for the city-state, they cut the support and left the classroom teachers alone. That's one of the experiments I meant when I described them above. They're done without basis and it's very questionable if they even benefit anyone or not just hold back most kids with these special education students.
 
+Well back to topic where we're trying to find out what "proper" education should look like. According to Hattie, the teacher is the vital pillar in the development of his pupils. If I consider my thoughts of the teacher being a sensor for parental abuse or other negative behaviour, then they become even more important. They can also serve as a role model next to parents. All this is a lot of pressure, so much that teachers need to be some kind of superhumans to do their job really well in that model. That doesn't mean they all need to fullfil these criteria though. It's fine if some only teach their subject. However, not all of them should be like cold robots who only teach their students formulas, grammar, etc. Some guidance or some motivational pressure is neccessary for success if you ask me. 
 
+But since the role of the teacher is so import, it hurts to see them ![not be as respected](https://www.varkeyfoundation.org/sites/default/files/documents/2013GlobalTeacherStatusIndex.pdf) in many western countries. It's kinda understandable as there are black sheep among them, who demotivate their students or leave off other bad memories. But it makes me wonder where this negativity starts off. Is it the annoying students with their bratty attitude? Is it the overworked teachers who burned out long ago and just wait to get into pension? Unfortunately I don't know the answer. Luckily I had very good teachers, so I can only partly imagine all the bad stories I've heard. 
 
+To conclude: A proper system for education needs a well trained army of teachers, who lead their students both intellectually and mentally as guidestones into adult life. They can heavily influence them, which might leave an imprint for the rest of their lives. 
 
+## Some words at the end
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-http://www.economist.com/news/briefing/21700385-great-teaching-has-long-been-seen-innate-skill-reformers-are-showing-best
+Well, I can't come up with much more to write about on this topic. I hope this this article was coherent enough and not too confusing. I tried to get my point across, but since there are some more connections to draw, it's kinda difficult to write about it in one text. 
