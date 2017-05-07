@@ -18,13 +18,16 @@ Luckily it doesn't make much difference here, because it didn't evolve into a di
 Lastly I was asked why I felt entitled to reply to that tweet. Unfortunately, I haven't figured out how to embed tweets with markdown, so just gonna quote them one after another. For reference, the last part of the discussion starts ![here](https://twitter.com/williampietri/status/861227432912617472)
 
 >If you are jumping in to bother a marginalized person about your desire for her meeting your standard of precision
+
 "Bother" is aharsh word here. Twitter (to some degree) exists to voice your own opinion on a variety of topics. Nothing says I can't put my comment under that of any person. Rather it's the other way around. Since we live in democracies, it should be encouraged to express your opinion and challenge those of others.
 Besides, why am I bothered by a thread of more than 34 replies? Just because I'm a white man doesn't mean you can bother me more than others.
 
 Plus as I pointed out above, this standard may very well be more important to me than the arbitary "safety" of Ms. Burns, a person I just don't know. Of course the things I value are more important to me than the things others value. Now, before I get a reply that I don't care for someone else's safety. I don't want her to be unsafe, but her claim that she's less safe because of that paper is completely empty. There is nothing that warrents that feeling of insecurity, so I don't see why I should put my standard of precision beneath her felt safety
 
 >Because you personally believe it doesn't fit right. But why does that entitle you to contradict and/or bother her?
+
 Yes, that's what it means to freely speak your mind. If I see something that doesn't fit, I'm free to point that out. I'm also free to not do so for that matter. That's a right in every western democracy and the very system we live on.
 
 >Why do you believe your reaction is so much more important?
+
 Nowhere did I say so. This is just the impression you, Mr. Pietri, have of me. My reaction or opinion doesn't need to be more or less important to qualify as a response to that of someone else. 
