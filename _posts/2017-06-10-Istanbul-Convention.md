@@ -27,7 +27,7 @@ Prevent violence? How? You can't punish anyone who didn't commit a crime in our 
 You can't prevent an attack, be it in a family, between nations in forms of the declaration of war or in virtual space via hacking. You also can't build a wall of some sorts between the two parties in a familiar relationship. 
 
 >4 Parties shall take the necessary measures to encourage all members of society, especially men and boys, to contribute actively to preventing all forms of violence covered by the scope of this Convention.
->5 Parties shall ensure that culture, custom, religion, tradition or so-called “honour” shall not be considered as justification for any acts of violence covered by the scope of this Convention.
+>5 Parties shall ensure that culture, custom, religion, tradition or so-called â€œhonourâ€ shall not be considered as justification for any acts of violence covered by the scope of this Convention.
 
 Yes, we have the human rights, they already cover all forms of violence. Furthermore the 5th paragraph is pretty much moot in the same sense as these human rights, among pretty much every democratic constitution or whatever acts as their substitute, outlaw violence. 
 
@@ -35,7 +35,7 @@ Yes, we have the human rights, they already cover all forms of violence. Further
 
 Finally something sensible. It isn't really odd, but I still wanted to highlight it. This should be at the core of our actions. Buildung an understanding, fighting violence, tear down social stigmas. But please also don't replace them with new ones. If a woman decides to work to feed her family or be the breadwinner in the family, fine. If the woman decides to be a simple housewife, because the earnings of the man are enough, fine. Don't condemn women who feel comfortable in traditional gender roles, it's their decision.
 
->2 Parties shall provide or arrange for specialist women’s support services to all women victims of violence and their children.
+>2 Parties shall provide or arrange for specialist women's support services to all women victims of violence and their children.
 
 Where's the man's support? Just because men experience it way less doesn't mean they don't need it. In fact, they're currently in more need than women, because they lack these kinds of services.
 
