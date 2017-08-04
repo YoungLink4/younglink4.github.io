@@ -3,7 +3,9 @@ layout: post
 title: Other left
 ---
 
-I think I'm starting to understand why I loathe the "other left". I mean fundamentally, they're pretty close to my believes. They also want equality, education for everyone, are against big corporations. Yet there's also a fundamental difference and I think I can put my finger on that. To illustrate, here's a ![tweet](https://twitter.com/RealDorianDawes/status/893155181621387264) of someone who qualifies as part of that group. The tweets around it put it into context, but that one alone practically show the difference between us. 
+I think I'm starting to understand why I loathe the "other left".
+
+I mean fundamentally, they're pretty close to my believes. They also want equality, education for everyone, are against big corporations. Yet there's also a fundamental difference and I think I can put my finger on that. To illustrate, here's a ![tweet](https://twitter.com/RealDorianDawes/status/893155181621387264) of someone who qualifies as part of that group. The tweets around it put it into context, but that one alone practically show the difference between us. 
 What I mainly mean is the racist part. Capitalism isn't racist, it's just problematic. I share the idea of capitalism being way to predominant in this world, absolutely. Single individuals or even certain groups shouldn't be able to exert as much power as they do with their money. See for example Soros or ![Goldman Sachs](https://www.thenation.com/article/goldmans-greek-gambit/) who can influence countries. But even on a smaller scale, lobbyists heavily influence politicians whereas common folk have nothing. 
 But capitalism isn't racist. Looking at Europe more than 100 years back, it already existed and extremely profitable for the rich. Those who owned capital could determine who gets work and who doesn't. It was a completely onesided display of power, even though it was a lot more homogenous than it is now. Capitalists don't care about skincolor, not at all. All they want is success. That's the nature of a successful person who made it big. Thinking otherwise leads to very different conclusions.
 
