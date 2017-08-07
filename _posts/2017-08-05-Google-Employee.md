@@ -1,6 +1,6 @@
 ﻿---
 layout: post
-title: Google employee
+title: Google policies
 ---
 
 A Google employee is talking about Google's [political agenda](http://gizmodo.com/exclusive-heres-the-full-10-page-anti-diversity-screed-1797564320). It's quite interesting.
