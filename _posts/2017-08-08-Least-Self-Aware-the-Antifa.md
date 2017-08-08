@@ -1,8 +1,7 @@
-﻿---
+---
 layout: post
 title: Least self-aware aka the Antifa
 ---
-
 
 If I were to award annual prizes, then I think I had a clear winner for at least one of them, every year. The political left is just at the top of the game when it comes to being unself-aware.
 
