@@ -3,6 +3,7 @@ layout: post
 title: Least self-aware aka the Antifa
 ---
 
+
 If I were to award annual prizes, then I think I had a clear winner for at least one of them, every year. The political left is just at the top of the game when it comes to being unself-aware.
 
 ![Yet this tweet shows perfectly well, how good they're at it](https://twitter.com/jobhaver/status/894227204858576902). It even has 200 retweets and 500 likes by the time I write this.
