@@ -87,3 +87,7 @@ exclude:
   - CNAME
   
 plugins: ['jekyll-twitter-plugin']
+
+group :jekyll_plugins do
+   gem "twitter-jekyll-plugin"
+ end
