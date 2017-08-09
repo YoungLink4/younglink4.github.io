@@ -6,7 +6,7 @@ title: Anti Damone
 {% twitter oembed https://twitter.com/rubygems/status/518821243320287232 %}
 
 fss
-#{% twitter https://twitter.com/RealDorianDawes/status/894752724318797825 %}	
+{% twitter oembed https://twitter.com/RealDorianDawes/status/894752724318797825 %}	
 Sowieso nicht lol
 https://twitter.com/aanand/status/894741503570063361
 https://twitter.com/der_Grobi/status/894746393453051906
