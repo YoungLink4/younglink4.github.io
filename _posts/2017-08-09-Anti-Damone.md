@@ -1,3 +1,8 @@
+---
+layout: post
+title: Anti Damone
+---
+
 {% https://twitter.com/RealDorianDawes/status/894752724318797825 %}	
 https://twitter.com/aanand/status/894741503570063361
 https://twitter.com/der_Grobi/status/894746393453051906
