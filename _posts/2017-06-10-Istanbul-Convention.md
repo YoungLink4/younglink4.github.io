@@ -3,7 +3,7 @@ layout: post
 title: Istanbul Convention
 ---
 
-Latvia isn't gonna sign a new convention ![combating violence against women and domestic violence](http://eng.lsm.lv/article/society/society/justice-ministry-advice-says-latvia-should-not-sign-istanbul-convention.a181484/) interesting. The reasoning is a bit weird for me, but not unreasonable. What's really odd, is the convention itself. I'm just gonna pick out some parts that strike me as strange, not everything in the 37 pages.
+Latvia isn't gonna sign a new convention [combating violence against women and domestic violence](http://eng.lsm.lv/article/society/society/justice-ministry-advice-says-latvia-should-not-sign-istanbul-convention.a181484/) interesting. The reasoning is a bit weird for me, but not unreasonable. What's really odd, is the convention itself. I'm just gonna pick out some parts that strike me as strange, not everything in the 37 pages.
 
 >1 The purposes of this Convention are to:
 a protect women against all forms of violence, and prevent, prosecute and eliminate violence against women and domestic violence;

@@ -7,7 +7,7 @@ I kinda presume everyone is familiar with the term and its meaning already. It's
 
 What I just want to do here is make a list on my own. I just wanna write down what I can come up with. Which groups speak up against others. For that I'm gonna first name the group and then list the things they're against, hoping it's at least somewhat comprehensive. It's also notable, that I won't concentrate on one country. I'm from Germany, so I feel more confident about the people living here, but some movements also exist elsewhere while others only exist in one country.
 
-  * **_Antifa_** As the name implies, Antifascists are against fascists, although that's a very broad statement as "fascist" in this sense isn't how an historian would define it, but how an antifascist defines it. In that sense, it can mean a lot of things. A populist (see Trump), someone who speaks out against immigrants or even ![someone who wants to have this right to speak](https://www.youtube.com/watch?v=plyC2ipo2B4&t=0s). 
+  * **_Antifa_** As the name implies, Antifascists are against fascists, although that's a very broad statement as "fascist" in this sense isn't how an historian would define it, but how an antifascist defines it. In that sense, it can mean a lot of things. A populist (see Trump), someone who speaks out against immigrants or even [someone who wants to have this right to speak](https://www.youtube.com/watch?v=plyC2ipo2B4&t=0s). 
   Also included are bankers or the (finance-)capitalism as a whole, the own government with their police as their executive force. Also mainstream media
   
   * **_Alt-rights_** (Illegal) immigrants, foreigners in general, political correctness, feminism, identity and gender politics. Also often times against mainstream media

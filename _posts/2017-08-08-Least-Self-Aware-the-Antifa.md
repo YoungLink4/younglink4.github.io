@@ -5,7 +5,7 @@ title: Least self-aware aka the Antifa
 
 If I were to award annual prizes, then I think I had a clear winner for at least one of them, every year. The political left is just at the top of the game when it comes to being unself-aware.
 
-![Yet this tweet shows perfectly well, how good they're at it](https://twitter.com/jobhaver/status/894227204858576902). It even has 200 retweets and 500 likes by the time I write this.
+[Yet this tweet shows perfectly well, how good they're at it](https://twitter.com/jobhaver/status/894227204858576902). It even has 200 retweets and 500 likes by the time I write this.
 
 It always feels like they never heard of the streisand effect, although this is a bit different. Usually it says to better keep your mouth shut about something that you don't want to see published, since making deal out of it will only shift more attention towards it. In this case, it's rather how they can't fathom different opinions and the fact, that their action will bring a reaction. Historically, many movements gave birth to a counter-movement. Or an action was followed by a reaction. In the the second half of the 18th century the Age of "Sturm und Drang" in Germany came only to existence because literature at that time was dominated by the Age of Enlightenment. During Hitler's rise many counter-movements, such as the anti-fascist action itself, sprung up to oppose him. This goes on and on, because we don't have the same mentality, opinion or priorities. Just because you think your actions are legitimate doesn't mean someone else does. Not even if they agree with your views.
 
@@ -17,4 +17,4 @@ Another trait that fits to the authorian picture is their view on violence. Ther
 
 And so the award for the least self-aware group in the United States of America goes to... the Antifascist Action! Congratulations
 
-![In case the tweet doesn't exist anymore for whatever reason, here a link to the article](https://www.theatlantic.com/magazine/archive/2017/09/the-rise-of-the-violent-left/534192/?)
+[In case the tweet doesn't exist anymore for whatever reason, here a link to the article](https://www.theatlantic.com/magazine/archive/2017/09/the-rise-of-the-violent-left/534192/?)

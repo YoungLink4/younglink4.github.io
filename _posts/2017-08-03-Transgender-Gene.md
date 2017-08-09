@@ -3,7 +3,7 @@ layout: post
 title: Transgender gene
 ---
 
-Reading ![this artcile by Reuters](http://www.reuters.com/article/us-usa-lgbt-biology-idUSKBN1AJ0F0) something weird came up.
+Reading [this artcile by Reuters](http://www.reuters.com/article/us-usa-lgbt-biology-idUSKBN1AJ0F0) something weird came up.
 
 I'm all for research before action. It's basically "think before you act" on a bigger scale, the scale of politics. So I welcome such a research before decisions are made.
 

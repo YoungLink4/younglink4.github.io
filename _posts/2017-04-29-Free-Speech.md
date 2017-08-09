@@ -5,7 +5,7 @@ title: The Importance of Free Speech
 
 It's finally time to talk about freedom of speech. It's the fundamental basis of our democratic systems as it gives us the power to further strive as a whole. Our systems are builded on the fact, that we can discuss anything on a reasonable level or at least that's how it should be. Hence why it's crucial to not make any cuts on this freedom at all, otherwise it's just gonna come back at us.
 
-Let's start with a ![video of Jordan Peterson](https://www.youtube.com/watch?v=8J-ztZTssxM) speaking at Toronto about the BillC16. Jordan Peterson became quite a big figure on the topic of freedom of speech after he tried to explain several times why he won't use pronouns to transgender people or sjw. He often emphasizes that he isn't against transgender, but against the restriction, or rather in this case promotion, of language. Ironically the video already starts with the other side actively trying to sabotage his speech.
+Let's start with a [video of Jordan Peterson](https://www.youtube.com/watch?v=8J-ztZTssxM) speaking at Toronto about the BillC16. Jordan Peterson became quite a big figure on the topic of freedom of speech after he tried to explain several times why he won't use pronouns to transgender people or sjw. He often emphasizes that he isn't against transgender, but against the restriction, or rather in this case promotion, of language. Ironically the video already starts with the other side actively trying to sabotage his speech.
 
 But this article isn't about the left trying to shut down those who go up against this language police. No, it's just about why I think freedom of speech is so import, will be and has to be protected.
 

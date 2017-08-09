@@ -3,7 +3,7 @@ layout: post
 title: Privilege
 ---
 
-This is basically a follow up from the last post. An Iowan student newspaper published an article about ![privilege](http://daily-iowan.com/2017/07/25/williams-what-is-privilege-and-what-do-we-do-with-it/)
+This is basically a follow up from the last post. An Iowan student newspaper published an article about [privilege](http://daily-iowan.com/2017/07/25/williams-what-is-privilege-and-what-do-we-do-with-it/)
 
 The article is all kinds of stupid, peaking at the "cognitive privilege", but at its core, it still fits at what I explained earlier, so why not take it apart?
 
