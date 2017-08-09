@@ -1,6 +1,6 @@
 ﻿---
 layout: post
-title: Anti Damone
+title: Anti Darone
 ---
 
 This is the a good opportunity to look at some reactions to James Darmone's !["sexist memo"](http://gizmodo.com/exclusive-heres-the-full-10-page-anti-diversity-screed-1797564320)
