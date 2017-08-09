@@ -86,4 +86,4 @@ exclude:
   - README.md
   - CNAME
   
-plugins: [jekyll-tweet-tag]
+plugins: [jekyll-tweet-tag, jekyll-twitter-plugin]
