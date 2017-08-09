@@ -1,9 +1,9 @@
 ---
 layout: post
-title: Anti Darone
+title: Anti Damore
 ---
 
-This is the a good opportunity to look at some reactions to James Darmone's ["sexist memo"](http://gizmodo.com/exclusive-heres-the-full-10-page-anti-diversity-screed-1797564320)
+This is the a good opportunity to look at some reactions to James Damore's ["sexist memo"](http://gizmodo.com/exclusive-heres-the-full-10-page-anti-diversity-screed-1797564320)
 
 (Unfortunately the Twitter plugin still doesn't work, so I'm just gonna link the Tweets and quote them.)
 
