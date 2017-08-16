@@ -1,4 +1,4 @@
-
+_site
 .DS_Store
 .jekyll
 .jekyll-metadata
@@ -8,5 +8,4 @@ Gemfile
 Gemfile.lock
 node_modules
 package.json
-_posts
 Drafts
