@@ -78,7 +78,7 @@ If anything it just shows the confirmation bias of the women working at Google a
 
 He didn't do something _in your opinion_. He did something right in _his opinion_ and that of numerous others. Who are you, or Google's CEO for that matter, to judge what is right and wrong here. He did nothing more than voice his opinion. There's nothing wrong with that, whether you like its content or not. Even if everything he says turns out to be false, it still doesn't mean he did something wrong. Voicing your opinion about something in itself is NEVER wrong.
 
->Kovach: How do you think Sundar handled canceling the town hall that was supposed to address many of these issues?
+>Kovach: How do you think Sundar handled [canceling the town hall](http://www.businessinsider.de/google-cancels-diversity-town-hall-2017-8?r=US&IR=T) that was supposed to address many of these issues?
 
 >Lauren: I mean, if we think there is even one person in the company who is going to be put at risk, then yeah, we did the right thing. I'm just so incredibly disappointed that it's come to this and that people don't feel safe to engage in a debate about something and that they might be exposed to risk publicly like that. That's really disappointing.
 
