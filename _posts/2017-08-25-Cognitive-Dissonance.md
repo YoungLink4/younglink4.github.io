@@ -8,7 +8,7 @@ Oh yeah [this tweet](https://twitter.com/tante/status/901001951978106880) is fun
 
 ![Bild](https://github.com/YoungLink4/younglink4.github.io/blob/master/images/Bild.jpg?raw=true)
 (I worry the most about the the vast number of refugees, of which some harass citizens. I'm scared, when I go out to work at 5am)
->25 Jahre und 2 Tage nach Rostock-Lichtenhagen: BILD macht in AfD-Manier Stimmung gegen Fll¸chtende.
+>25 Jahre und 2 Tage nach Rostock-Lichtenhagen: BILD macht in AfD-Manier Stimmung gegen Fl√ºchtende.
 
 (Basically saying BILD is shifting the mood against immigrants just like the AfD)
 He adds another line though.
